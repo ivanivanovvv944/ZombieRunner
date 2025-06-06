@@ -1,0 +1,3 @@
+Basically, Fancy display lets you set pace you want to run at, you listen to music while running or something
+you slow down zombie sounds/ and bear sounds start playing and you get scared and speed up, resulting in you speeding up 
+Absolutly the best way to train, nothing beats good old adrenaline rush. 
